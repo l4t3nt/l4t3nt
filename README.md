@@ -29,7 +29,7 @@ I believe that knowledge should be shared, and that curiosity is contagious. You
 ---
 
 ## 🔗 Let's Connect
-- **X**: [@l4t3nt](https://x.com/l4t3nt)  
+- **X**: [@l4t3nt](https://x.com/l4t3nt146173)  
 - **GitHub**: You're already here 😉  
 
 ---
